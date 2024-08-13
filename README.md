@@ -12,4 +12,4 @@ Meu nome é Amanda Reis
 
 @4mndlu
 
-![...](![image](https://github.com/user-attachments/assets/12ca2945-e470-43f1-918a-849ce8e9669e))
+![](https://media1.tenor.com/m/9qpDo1yk2ZYAAAAC/ariana-grande-ariana.gif)
