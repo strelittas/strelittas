@@ -13,4 +13,5 @@ Meu nome é Amanda Reis
 @4mndlu
 
 
-![image](https://github.com/user-attachments/assets/4417fc20-edc2-40dd-840a-d3fb82089029)
+![image](https://github.com/user-attachments/assets/68b8a288-1c9e-42d6-b704-1a7e3adfb3fd)
+
